@@ -1,2 +1,2 @@
 # SAMKIELCode
-Sessions for SAMKIEL AI 💯
+Sessions for SAMKIEL AI 😳💯
